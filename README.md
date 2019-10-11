@@ -1,1 +1,3 @@
-# Acheson_G_Avery_G_Midterm
+Battlefield vs Call of Duty
+
+Call of Duty is Better
